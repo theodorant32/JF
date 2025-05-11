@@ -1,4 +1,4 @@
-You wanted to open up a 24/7 coffee shop in the future right?
-The next Breka
+Hopefully, acts as a stress reliever
+
 
 - For Joanna
