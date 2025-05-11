@@ -1,2 +1,2 @@
 A Blossoming Flower Website 
-- For Kezia
+- For Joanna
